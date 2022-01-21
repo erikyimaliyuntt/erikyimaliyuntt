@@ -1,4 +1,4 @@
-### Hi there 👋
+## While the iron is hot still need their own hard.  👋
 
 <!--
 **erikyimaliyuntt/erikyimaliyuntt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
